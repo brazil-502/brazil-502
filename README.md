@@ -1,5 +1,5 @@
 # Hi, I'm brazil_
-call me brazil_, brazil_502, braz,
+Call me brazil_, brazil_502, braz.
 <br>
 DO NOT CALL ME A "BRA" THAT HAPPENED ONCE
 ## wtf am i?
