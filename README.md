@@ -9,7 +9,7 @@ I like binge watching things on YouTube. <br>
 I am a dissapointment to my parents.
 ## contacts
 * twitter: @brazil_502
-* discord: brazil_#2076
+* discord: brazil_#2076 or brazil_#8348
 ## languages i know:
 * python
 * md
